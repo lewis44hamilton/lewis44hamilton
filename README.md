@@ -8,7 +8,7 @@
 
                    i really like franco colapinto and oscar piastri
 
-✦ : Multifandom ; F1, DW, SFAWTDE / DAWTDE , DC. ( Sometimes. ) [ DW, F1 AND SFAWTDE are my biggest fixations. ]
+✦ : Multifandom ; F1, DW, Transformers. 
 
 ✦ : F1 drivers i support : Kimi Antonelli, Franco Colapinto, Oscar Piastri, George Russell, Isack Hadjar And Arvid Lindblad + Lewis Hamilton.
 
