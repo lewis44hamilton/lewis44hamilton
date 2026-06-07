@@ -1,4 +1,4 @@
-<img width="936" height="345" alt="★" src="https://github.com/user-attachments/assets/b5e43e21-f8f3-4255-be3d-98826004945f" />
+<img width="936" height="545" alt="charles leclerc wallpaper" src="https://github.com/user-attachments/assets/07a5aacd-8e2c-457c-a14e-c051cbdefecf" />
 
 
 
