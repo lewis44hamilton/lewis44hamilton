@@ -7,7 +7,7 @@
 
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=F1-Drivers&style=for-the-badge)
 
-<img width="400" height="350" alt="download (7)" src="https://github.com/user-attachments/assets/6812f5c7-48b6-4a68-b431-1453d675018b" />
+<img width="250" height="250" alt="download (7)" src="https://github.com/user-attachments/assets/6812f5c7-48b6-4a68-b431-1453d675018b" />
 
 
  &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRONOUNS.CC](https://pronouns.cc/@CL16)
