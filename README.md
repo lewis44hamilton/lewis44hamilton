@@ -2,7 +2,7 @@
 
 <img width="636" height="345" alt="charles leclerc wallpaper" src="https://github.com/user-attachments/assets/07a5aacd-8e2c-457c-a14e-c051cbdefecf" />
 
- dont be afraid to talk to me
+i have too many pt styles to count pls dont blow me up for having a style like yours
 
 
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=F1-Drivers&style=for-the-badge)
