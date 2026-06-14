@@ -22,5 +22,4 @@ i get rehyperfixated on some of my top drivers so i change this github alot
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&cover_image=true&theme=natemoo-re&show_offline=true&background_color=6b0000&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&redirect=true)
 
 
-<img width="736" height="145" alt="Lewis Hamilton (1)" src="https://github.com/user-attachments/assets/99c33e0b-6c27-4b7b-b701-b9775c270c5a" />
-
+<img width="736" height="245" alt="Lewis Hamilton (1)" src="https://github.com/user-attachments/assets/8d12ee5f-4f02-4b94-b41e-180c8a83af34" />
