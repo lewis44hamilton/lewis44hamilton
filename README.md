@@ -1,6 +1,6 @@
 ## I like wearing things that other people wouldn't want to wear, to be a bit edgy.
 
-<img width="636" height="345" alt="charles leclerc wallpaper" src="https://github.com/user-attachments/assets/552fe134-3a0c-4067-9363-278c23eb758f" />
+<img width="735" height="490" alt="Lewis Hamilton x Charles Leclerc" src="https://github.com/user-attachments/assets/817f2c21-4f27-4af9-b972-f0a3995ec8c2" />
 
 i get rehyperfixated on some of my top drivers so i change this github alot
 
@@ -22,4 +22,5 @@ i get rehyperfixated on some of my top drivers so i change this github alot
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&cover_image=true&theme=natemoo-re&show_offline=true&background_color=6b0000&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&redirect=true)
 
 
-<img width="736" height="245" alt="Lewis Hamilton (1)" src="https://github.com/user-attachments/assets/8d12ee5f-4f02-4b94-b41e-180c8a83af34" />
+<img width="736" height="345" alt="Charles Leclerc and Lewis Hamilton (2)" src="https://github.com/user-attachments/assets/f61a705d-6611-4450-85ab-6082ef2df3df" />
+
