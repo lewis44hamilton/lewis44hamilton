@@ -12,11 +12,11 @@ i get rehyperfixated on some of my top drivers so i change this github alot
 
 
 
- &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRONOUNS.CC](https://pronouns.cc/@LH44)
+ &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRONOUNS.CC](https://pronouns.cc/@MV3)
 
 &ensp;&ensp;&ensp;[GUNS.LOL](https://guns.lol/44lh)
 
-&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRNS.PAGE](https://en.pronouns.page/@LH44)  / [ATABOOK](https://lh44.atabook.org)
+&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRNS.PAGE](https://en.pronouns.page/@LH44)  / [ATABOOK](https://mv3.atabook.org)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&cover_image=true&theme=natemoo-re&show_offline=true&background_color=6b0000&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&redirect=true)
