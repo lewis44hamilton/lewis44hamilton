@@ -1,7 +1,7 @@
-## SIR LEWIS HAMILTON.
+## THE DUTCH LION
 
+<img width="736" height="414" alt="max verstappen nurburgring 2026 (1)" src="https://github.com/user-attachments/assets/e415ad22-1ebc-45e5-8da7-93d9be3d270b" />
 
-<img width="735" height="245" alt="download (49)" src="https://github.com/user-attachments/assets/ae9823af-3b9a-4580-9e9c-df9300f47ed2" />
 
 OSDD SYS, BOTH ACCOUNTS BELONG TO HEADMATES.
 
@@ -24,6 +24,6 @@ OSDD SYS, BOTH ACCOUNTS BELONG TO HEADMATES.
 
 
 
-<img width="735" height="245" alt="header __ formula 1 (1)" src="https://github.com/user-attachments/assets/de3d3ee9-a395-4eba-8e1f-54a32697f636" />
+<img width="735" height="245" alt="download (55)" src="https://github.com/user-attachments/assets/0520118b-de53-4a7c-b56f-dab9c452bcaf" />
 
 
