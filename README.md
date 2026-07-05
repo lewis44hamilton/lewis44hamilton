@@ -1,6 +1,7 @@
-## THE DUTCH LION
+## THE MONACO LEOPARD
 
-<img width="736" height="414" alt="max verstappen nurburgring 2026 (1)" src="https://github.com/user-attachments/assets/e415ad22-1ebc-45e5-8da7-93d9be3d270b" />
+
+<img width="736" height="414" alt="wallpaper charles leclerc f1" src="https://github.com/user-attachments/assets/38abb41c-96b2-452b-8bdf-87828c74f7c3" />
 
 
 OSDD SYS, BOTH ACCOUNTS BELONG TO HEADMATES.
@@ -24,6 +25,7 @@ OSDD SYS, BOTH ACCOUNTS BELONG TO HEADMATES.
 
 
 
-<img width="735" height="245" alt="download (55)" src="https://github.com/user-attachments/assets/0520118b-de53-4a7c-b56f-dab9c452bcaf" />
+
+<img width="736" height="246" alt="charles leclerc (3)" src="https://github.com/user-attachments/assets/7cbf73cd-5b22-4dff-9a4b-63214801f588" />
 
 
