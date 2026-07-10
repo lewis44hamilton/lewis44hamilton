@@ -1,7 +1,7 @@
-## THE MONACO LEOPARD
+## THE BRITISH CHEETAH
 
 
-<img width="736" height="414" alt="wallpaper charles leclerc f1" src="https://github.com/user-attachments/assets/38abb41c-96b2-452b-8bdf-87828c74f7c3" />
+<img width="736" height="425" alt="@ 𝗹𝗶𝗻𝗱𝗯𝗹𝗮𝗱" src="https://github.com/user-attachments/assets/f45f247c-c419-4b7e-915a-6ead22d4069b" />
 
 
 OSDD SYS, BOTH ACCOUNTS BELONG TO HEADMATES.
@@ -20,7 +20,11 @@ i use a screenreader, i cannot read fonts either. don't type in symbols or fonts
 
 &ensp;&ensp;&ensp;[GUNS.LOL](https://guns.lol/billiondollarman)
 
+^ CL / MV Themed
+
  &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp; &ensp;&ensp;[ATA](https://billiondollarman.atabook.org)  &ensp;&ensp; &ensp;&ensp; [PRNS.PAGE](https://en.pronouns.page/@billiondollarman)
+
+ ^ Both CL themed i believe
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&cover_image=true&theme=natemoo-re&show_offline=true&background_color=6b0000&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&redirect=true)
 
@@ -28,6 +32,6 @@ i use a screenreader, i cannot read fonts either. don't type in symbols or fonts
 
 
 
-<img width="736" height="246" alt="charles leclerc (3)" src="https://github.com/user-attachments/assets/7cbf73cd-5b22-4dff-9a4b-63214801f588" />
+<img width="736" height="414" alt="we are the Arvidlings" src="https://github.com/user-attachments/assets/cd7be272-1053-4329-a0fe-eae801ad0f9c" />
 
 
