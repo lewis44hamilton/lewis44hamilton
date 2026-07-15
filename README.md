@@ -1,7 +1,9 @@
 ## THE BRITISH CHEETAH
 
 
-<img width="736" height="425" alt="@ 𝗹𝗶𝗻𝗱𝗯𝗹𝗮𝗱" src="https://github.com/user-attachments/assets/f45f247c-c419-4b7e-915a-6ead22d4069b" />
+<img width="735" height="489" alt="Arvid Lindblad (12)" src="https://github.com/user-attachments/assets/ca2e15e7-9db3-4bef-8a50-ee487c005acb" />
+
+
 
 
 i use a screenreader btw
@@ -29,6 +31,7 @@ i use a screenreader btw
 
 
 
-<img width="736" height="414" alt="we are the Arvidlings" src="https://github.com/user-attachments/assets/cd7be272-1053-4329-a0fe-eae801ad0f9c" />
+<img width="736" height="245" alt="download (77)" src="https://github.com/user-attachments/assets/807b0394-1cf0-49ca-94d3-f334705bb32b" />
+
 
 
