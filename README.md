@@ -20,7 +20,7 @@ i use a screenreader, i cannot read fonts either. don't type in symbols or fonts
 
 &ensp;&ensp;&ensp;[GUNS.LOL](https://guns.lol/billiondollarman)
 
-^ CL / MV Themed
+
 
 
 
